@@ -1,1 +1,0 @@
-# Jenikats_Social-Structures-Simmulation
